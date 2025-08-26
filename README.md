@@ -5,7 +5,7 @@
 
 📱 **Phone:** +91 8126195454  
 📧 **Email:** tiwarinaman79@gmail.com  
-🌐 [Portfolio Website](https://namantiwari23.github.io/Portfolio_Website_/) | [Resume](https://drive.google.com/file/d/17kEKXiH4e3BqFugEVBY5QkGRsRWoBHCX/view?usp=sharing) | [LinkedIn](https://www.linkedin.com/in/yourprofile)  
+🌐 [Portfolio Website](https://namantiwari23.github.io/Portfolio_Website_/) | [Resume](https://drive.google.com/file/d/17kEKXiH4e3BqFugEVBY5QkGRsRWoBHCX/view?usp=sharing) | [LinkedIn]([https://www.linkedin.com/in/yourprofile](https://www.linkedin.com/in/naman-tiwari-680036278/))  
 
 ---
 
